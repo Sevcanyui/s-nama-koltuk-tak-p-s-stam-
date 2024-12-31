@@ -1,1 +1,0 @@
-# s-nama-koltuk-tak-p-s-stam-
